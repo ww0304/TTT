@@ -5,9 +5,11 @@
 ------
 :heart: :point_right: 【地址三】 ：http://www.kanav.top/
 ------
+:heart: :point_right: 【地址四】 ：http://av361.xyz/
+------
 :heart: :point_right: 【邮箱联系方式】 ：niso000aa@gmail.com
 ------
-:heart: :point_right: 【永久域名】 ：http://www.avse.top/  
+:heart: :point_right: 【永久域名】 ：http://www.yyr67.com/  
 ------
 # QQ或者微信点不开以上链接请用手机浏览器打开！
 # :sunglasses:重要提醒:sunglasses:收藏本页面，避免迷路！
