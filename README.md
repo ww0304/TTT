@@ -3,7 +3,7 @@
 ------
 :heart: :point_right: 【电信通道】 ：http://www.kp999.xyz/
 ------
-:heart: :point_right: 【高速通道】 ：http://www.ck361.xyz/
+:heart: :point_right: 【高速通道】 ：http://www.nndh.xyz/
 ------
 :heart: :point_right: 【wifi通道】 ：http://www.nmdh.xyz/
 ------
