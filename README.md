@@ -1,11 +1,11 @@
 # 看猛片最新地址发布:sunglasses:
 :heart: :point_right: 【高速通道】 ：http://www.laowangyy.com/
 ------
-:heart: :point_right: 【电信通道】 ：http://www.kp999.xyz/
+:heart: :point_right: 【电信通道】 ：http://www.33x22.com/
 ------
-:heart: :point_right: 【移动通道】 ：http://www.nndh.xyz/
+:heart: :point_right: 【移动通道】 ：
 ------
-:heart: :point_right: 【wifi通道】 ：http://www.nmdh.xyz/
+:heart: :point_right: 【wifi通道】 ：
 ------
 :heart: :point_right: 【邮箱联系方式】 ：niso000aa@gmail.com
 ------
