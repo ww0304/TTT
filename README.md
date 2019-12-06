@@ -1,11 +1,11 @@
 # 看猛片最新地址发布:sunglasses:
 :heart: :point_right: 【高速通道】 ：http://www.nb321.xyz/
 ------
-:heart: :point_right: 【电信通道】 ：http://www.she007.xyz/
+:heart: :point_right: 【电信通道】 ：http://www.33x22.com/
 ------
-:heart: :point_right: 【移动通道】 ：http://www.av66.xyz/
+:heart: :point_right: 【移动通道】 ：http://www.laowangyy.com/
 ------
-:heart: :point_right: 【wifi通道】 ：http://www.kanav.top/
+:heart: :point_right: 【wifi通道】 ：
 ------
 :heart: :point_right: 【邮箱联系方式】 ：ludizhi999@gmail.com
 ------
