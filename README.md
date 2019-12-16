@@ -3,8 +3,6 @@
 ------
 :heart: :point_right: 【电信通道】 ：http://www.she007.xyz/
 ------
-:heart: :point_right: 【移动通道】 ：http://www.kp55.xyz/
-------
 :heart: :point_right: 【wifi通道】 ：http://www.ttkk53.com/
 ------
 :heart: :point_right: 【邮箱联系方式】 ：ludizhi999@gmail.com
