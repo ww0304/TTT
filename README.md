@@ -3,6 +3,8 @@
 ------
 :heart: :point_right: 【优质资源通道】 ：http://www.ttkk53.com/
 ------
+:heart: :point_right: 【高速优质资源通道】 ：http://www.ggi80.com/
+------
 :heart: :point_right: 【邮箱联系方式】 ：ludizhi999@gmail.com
 ------
 :heart: :point_right: 【永久域名】 ：http://www.yyr67.com/     http://www.33x22.com/ 
