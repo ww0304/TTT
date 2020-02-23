@@ -1,5 +1,5 @@
 # 看猛片最新地址发布:sunglasses:
-:heart: :point_right: 【高速观看通道】 ：http://www.sskk53.com/
+:heart: :point_right: 【高速观看通道】 ：http://www.xxyy51.com/
 ------
 :heart: :point_right: 【优质资源通道】 ：http://www.ttkk53.com/
 ------
