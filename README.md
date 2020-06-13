@@ -1,11 +1,11 @@
 # 看猛片最新地址发布:sunglasses:
 :heart: :point_right: 【高速观看通道】 ：http://www.ggi77.com/
 ------
-:heart: :point_right: 【优质资源通道】 ：http://www.xxyy51.com/
+:heart: :point_right: 【优质资源通道】 ：http://www.ggi77.com/
 ------
-:heart: :point_right: 【高速优质资源通道】 ：http://www.ttkk53.com/
+:heart: :point_right: 【高速优质资源通道】 ：http://www.ggi77.com/
 ------
-:heart: :point_right: 【高速资源通道】 ：http://www.hhyyaa.com/
+:heart: :point_right: 【高速资源通道】 ：http://www.ggi77.com/
 ------
 :heart: :point_right: 【邮箱联系方式】 ：ludizhi999@gmail.com
 ------
