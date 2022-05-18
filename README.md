@@ -1,7 +1,7 @@
 # 看猛片最新地址发布:sunglasses:
 :heart: :point_right: 【高速观看通道】 ：https://bh237.com/
 ------
-:heart: :point_right: 【优质资源通道】 ：https://xxyy51.com/
+:heart: :point_right: 【优质资源通道】 ：https://bh543.com/
 ------
 :heart: :point_right: 【高速优质资源通道】 ：
 ------
