@@ -1,5 +1,5 @@
 # 看猛片最新地址发布:sunglasses:
-:heart: :point_right: 【高速观看通道】 ：https://qq.com.bhtv15.top
+:heart: :point_right: 【高速观看通道】 ：https://qq.com.bhtv17.top
 ------
 :heart: :point_right: 【优质资源通道】 ：https://qq.com.bh908.top
 ------
